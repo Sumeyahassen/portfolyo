@@ -20,7 +20,7 @@ An **agricultural product delivery system** connecting **farmers directly with c
 Feel free to connect with me for **collaborations, networking, or discussions** about tech and innovation!  
 
 📧 **Email:** sumeyahassensumi@gmail.com
-🔗 **LinkedIn:** edin.com/in/sumeya-hassen-sumi-9711092a1/
+🔗 **LinkedIn:** linkedin.com/in/sumeya-hassen-sumi-9711092a1/
 
 
 ---
